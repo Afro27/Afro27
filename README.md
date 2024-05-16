@@ -1,5 +1,3 @@
-Ingenieria civil industrial TI
+Ingeniero Civil de Industrias, Diploma en Ingeniería Tecnologías de Información.
 
-Estudiante de 5to año Pontificia Universidad Católica de Chile
-
-Licenciado en ciencias de la ingenieria
+Pontificia Universidad Católica de Chile.
